@@ -1,0 +1,34 @@
+**представиться стихом**  
+
+Представиться стихом
+Я может быть забыл
+Я всемогущий Ivan,
+Далеким утром я им несомненно был.
+
+My wishfull soul is yours
+Your crazy thoughts are mine
+Why to believe in such a sign?
+
+Нормальный светский разговор,
+Предательство небес
+Ok Melissa, im the momentary yes
+
+Зачет поставишь ? Коллизия историй
+This is a truck, a duck, a fuck
+входной глоссарий - правитель Варий
+
+Жандарм лесной, воочию сидящий
+Don’t you believe in signs?
+О будда приходящий
+
+Verification, ping , the protocol
+На кухне, меня Данила вулканом уколол
+
+Do not be pussy in the sea
+My fears are common in the mass
+It’s voice of truth, within the glass, dumb ass
+
+*23.02.2023*
+
+
+---
